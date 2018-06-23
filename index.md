@@ -1,3 +1,4 @@
-# Welcome to my blog
+# **Zaczynamyzabawę**
 
-I'm glad you are here. I plan to talk about ...
+Jak to ktoś powiedział: 
+> Lepiej późno niż wcale 
